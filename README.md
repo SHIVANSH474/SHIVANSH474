@@ -25,12 +25,12 @@
 
 ## Connect with Me
 
-[![Github](https://img.shields.io/badge/-Github-181717?style=for-the-badge&logo=Github&logoColor=white)](https://github.com/itzshukla)
+[![Github](https://img.shields.io/badge/-Github-181717?style=for-the-badge&logo=Github&logoColor=white)](https://github.com/SHIVANSH474)
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.me/mastiwithfriendsx)
 
 ## My Stats
 
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=itzshukla&show_icons=true&theme=radical)
-![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=itzshukla&layout=compact&theme=midnight-purple&hide=Css)
+![GitHub stats](https://github-readme-stats.vercel.app/api?username=SHIVANSH474&show_icons=true&theme=radical)
+![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=SHIVANSH474&layout=compact&theme=midnight-purple&hide=Css)
 
-![Visitors](https://visitor-badge.laobi.icu/badge?page_id=itzshukla)￼Enter
+![Visitors](https://visitor-badge.laobi.icu/badge?page_id=SHIVANSH474)￼Enter
