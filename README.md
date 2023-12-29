@@ -1,4 +1,4 @@
-<h1> <img  style="align-item" :"center" src="https://te.legra.ph/file/8e779ca298fb47f368f2b.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 🦋⃟ ᴠ‌ɪ‌ᴘ‌🇸​𝗛𝗜𝗩𝗔𝗡𝗦𝗛 🦋‌•─‌⃛≛⃝🦅༆𝐗𝐃𐏓 ⃪༏‌⃪🔥᪵᪳❛</h1>
+<h1> <img  style="align-item" :"center" src="https://te.legra.ph/file/8e779ca298fb47f368f2b.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 🦋⃟ s✘ᴡ🇸​𝗛𝗜𝗩𝗔𝗡𝗦𝗛 🦋‌•─‌⃛≛⃝🦅༆𝐗𝐃𐏓 ⃪༏‌⃪</h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/itzshukla/count.svg" />
