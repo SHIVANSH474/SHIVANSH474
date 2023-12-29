@@ -1,10 +1,10 @@
-<h1> <img  style="align-item" :"center" src="https://te.legra.ph/file/8e779ca298fb47f368f2b.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 🦋⃟ s✘ᴡ🇸​𝗛𝗜𝗩𝗔𝗡𝗦𝗛 🦋‌•─‌⃛≛⃝🦅༆𝐗𝐃𐏓 ⃪༏‌⃪</h1>
+<h1> <img  style="align-item" :"center" src="https://graph.org/file/ac8f3e4e46b14704e9dfc.jpg" width="50px" height="60%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 🦋⃟ s✘ᴡ🇸​𝗛𝗜𝗩𝗔𝗡𝗦𝗛 🦋‌•─‌⃛≛⃝🦅༆𝐗𝐃𐏓 ⃪༏‌⃪</h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/itzshukla/count.svg" />
 </p>
 
-[<img src="https://graph.org/file/ac8f3e4e46b14704e9dfc.jpg"/>](https://github.com/itzshukla)
+[<img src="https://graph.org/file/5e7e96abd9c62141c90d0.jpg"/>](https://github.com/itzshukla)
 
         
 <h1> ɢɪᴛʜᴜʙ ᴀɴᴀʟʏᴛɪᴄs </h1>
